@@ -3,7 +3,7 @@
 - 👀 My other hobbies are playing Football, Chess and Reading Science Fiction novels
 - 🌱 I’m currently learning all the things I like.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me : mailid: kanyalnaman11@gmail.com
+- 📫 How to reach me : mail id: kanyalnaman11@gmail.com
 - 😄 I also call myself Bz ! Short for something great 😄 
 - ⚡ Fun fact is that learning facts is not fun at all
 
